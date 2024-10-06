@@ -46,7 +46,7 @@
 ## 二、[火麒麟//    点击飞机直达火麒麟官网 ✈](https://one.huoqilin520.uk/#/register?code=k3nNabb1 "火麒麟//    点击飞机直达火麒麟官网✈")
 | 套餐名称  | 套餐价格/月 | 流量  | 同时在线  | 点击订购  |
 | ------------ | ------------ | ------------ | ------------ | ------------ |
-| 学习套餐 |8.8¥   | 10G  |3   |[☞学生套餐 ](https://one.huoqilin520.uk/#/register?code=k3nNabb1"☞学生套餐 ") |
+| 学习套餐 |8.8¥   | 10G  |3   |[☞学习套餐](https://one.huoqilin520.uk/#/register?code=k3nNabb1 "☞学习套餐")   |
 | 通用套餐 |20¥   | 100G  |无限制   |[☞通用套餐](https://one.huoqilin520.uk/#/register?code=k3nNabb1 "☞通用套餐")   |
 | VIP1套餐 |25¥   | 250G  |无限制   |[☞VIP1套餐](https://one.huoqilin520.uk/#/register?code=k3nNabb1 "☞VIP1套餐")  |
 | VIP2套餐 |35¥   | 500G  |无限制   |[☞VIP2套餐](https://one.huoqilin520.uk/#/register?code=k3nNabb1"☞VIP2套餐")  |
